@@ -1,1 +1,1 @@
-# ganesha
+om ganeshaya namaha
